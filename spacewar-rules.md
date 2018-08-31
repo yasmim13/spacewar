@@ -131,4 +131,9 @@
 129. No caso de algum combatente ferido, va para a upa e fique 239 horas esperando.
 130. Se o inimigo estiver fugindo utilize o Colisor de Hádrons.
 131. Se você entrar no buraco negro numero 32, encontrará o monstro do lago Nass.
-132. Caso encontre o Darth vader pergunte se ele é o seu pai.
+132. Caso você compre um Space Lanche Feliz na SpaceDonald's, você ganhará uma miniatura do do Chewbacca.
+133. Se a palavra Whyegdhhwclnvnpvei for falada de tras para frente, o jogo termina.
+134. Se seus amigos mafiarem com você , escolha o número deles da chamada
+135. Se o Galactus destruir a sua nave, volte para a dimensão gama.
+136. Snipers em Marte são permitidos.
+137. Se o Thanos aparecer com a manopla, segurem o Petter Quill.
